@@ -1,1 +1,1 @@
-The Crusades, a series of religious wars, took place between the 11th and 13th centuries.
+The Zimmermann Telegram, intercepted by British intelligence in 1917, played a crucial role in the United States' decision to enter World War I.
