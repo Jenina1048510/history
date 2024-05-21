@@ -1,1 +1,1 @@
-The Cuban Missile Crisis in 1962 brought the world to the brink of nuclear war between the United States and the Soviet Union.
+The Crusades, a series of religious wars, took place between the 11th and 13th centuries.
