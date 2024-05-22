@@ -1,1 +1,1 @@
-The Crusades, a series of religious wars, took place between the 11th and 13th centuries.
+The invention of the movable-type printing press by Johannes Gutenberg around 1440 revolutionized the spread of information in Europe.
