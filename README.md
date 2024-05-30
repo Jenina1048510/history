@@ -1,1 +1,1 @@
-Johannes Gutenberg invented the printing press around 1440, revolutionizing the spread of information.
+World War I, also known as the Great War, lasted from 1914 to 1918.
