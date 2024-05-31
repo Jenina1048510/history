@@ -1,1 +1,1 @@
-World War I, also known as the Great War, lasted from 1914 to 1918.
+The sinking of the RMS Titanic in 1912 remains one of the deadliest maritime disasters in history.
