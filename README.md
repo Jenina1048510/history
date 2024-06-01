@@ -1,1 +1,1 @@
-The sinking of the RMS Titanic in 1912 remains one of the deadliest maritime disasters in history.
+The Arab Spring, a wave of protests and uprisings, began in late 2010.
