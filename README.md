@@ -1,1 +1,1 @@
-The Arab Spring, a wave of protests and uprisings, began in late 2010.
+Brexit, the United Kingdom's withdrawal from the European Union, was officially completed on January 31, 2020.
