@@ -1,1 +1,1 @@
-The COVID-19 pandemic, caused by the novel coronavirus, emerged in late 2019 and led to a global health crisis.
+The invention of the telescope by Galileo Galilei in the early 17th century revolutionized astronomy.
