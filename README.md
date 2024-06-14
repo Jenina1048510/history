@@ -1,1 +1,1 @@
-The September 11 attacks in 2001 reshaped global politics and led to the War on Terror. 
+The Treaty of Tordesillas in 1494 divided the newly discovered lands outside Europe between Spain and Portugal.
