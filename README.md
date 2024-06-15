@@ -1,1 +1,1 @@
-The Treaty of Tordesillas in 1494 divided the newly discovered lands outside Europe between Spain and Portugal.
+The signing of the Magna Carta in 1215 at Runnymede, England, was a significant step towards establishing the principle of the rule of law.
