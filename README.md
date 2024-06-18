@@ -1,1 +1,1 @@
-The signing of the Magna Carta in 1215 at Runnymede, England, was a significant step towards establishing the principle of the rule of law.
+The Viking explorer Leif Erikson is believed to have reached North America around the year 1000, predating Christopher Columbus.
