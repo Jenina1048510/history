@@ -1,1 +1,1 @@
-The Russian Revolution in 1917 led to the overthrow of the Tsarist autocracy and the establishment of the Soviet Union.
+The Black Death, one of the deadliest pandemics in human history, peaked in Europe between 1347 and 1351.
