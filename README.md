@@ -1,1 +1,1 @@
-The Black Death, one of the deadliest pandemics in human history, peaked in Europe between 1347 and 1351.
+Brexit, the United Kingdom's withdrawal from the European Union, was officially completed on January 31, 2020.
