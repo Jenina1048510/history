@@ -1,1 +1,1 @@
-Brexit, the United Kingdom's withdrawal from the European Union, was officially completed on January 31, 2020.
+The ancient city of Babylon, famous for the Hanging Gardens, thrived around 1800 BC.
