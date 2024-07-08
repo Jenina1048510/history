@@ -1,1 +1,1 @@
-The dropping of atomic bombs on Hiroshima and Nagasaki in 1945 marked the end of World War II.
+The invention of the steam engine by James Watt in 1769 paved the way for mechanized transportation and industry.
