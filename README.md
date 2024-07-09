@@ -1,1 +1,1 @@
-The invention of the steam engine by James Watt in 1769 paved the way for mechanized transportation and industry.
+The first industrial textile mill in the world was established by Richard Arkwright in Cromford, England, in 1771.
