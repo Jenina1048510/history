@@ -1,1 +1,1 @@
-The Chernobyl nuclear disaster in 1986, one of the worst nuclear accidents in history, had far-reaching environmental and health consequences.
+The sinking of the RMS Titanic in 1912 remains one of the deadliest maritime disasters in history.
