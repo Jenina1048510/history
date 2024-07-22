@@ -1,1 +1,1 @@
-The Great Pyramid of Giza was built around 2560 BC.
+The Treaty of Versailles, signed in 1919, formally ended World War I and imposed heavy penalties on Germany.
