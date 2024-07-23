@@ -1,1 +1,1 @@
-The Treaty of Versailles, signed in 1919, formally ended World War I and imposed heavy penalties on Germany.
+The collapse of Lehman Brothers in 2008 triggered a global financial crisis.
