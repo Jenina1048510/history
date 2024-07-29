@@ -1,1 +1,1 @@
-The Treaty of Versailles, signed in 1919, formally ended World War I and imposed heavy penalties on Germany.
+The COVID-19 pandemic, caused by the novel coronavirus, emerged in late 2019 and led to a global health crisis.
