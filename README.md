@@ -1,1 +1,1 @@
-The COVID-19 pandemic, caused by the novel coronavirus, emerged in late 2019 and led to a global health crisis.
+The Luddite movement, opposing industrialization, emerged in England in the early 19th century.
