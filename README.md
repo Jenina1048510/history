@@ -1,1 +1,1 @@
-The Luddite movement, opposing industrialization, emerged in England in the early 19th century.
+The Code of Hammurabi, one of the earliest known sets of laws, dates back to around 1754 BC.
