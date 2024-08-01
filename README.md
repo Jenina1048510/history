@@ -1,1 +1,1 @@
-The Code of Hammurabi, one of the earliest known sets of laws, dates back to around 1754 BC.
+The Black Death, one of the deadliest pandemics in human history, peaked in Europe between 1347 and 1351.
