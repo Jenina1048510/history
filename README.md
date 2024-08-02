@@ -1,1 +1,1 @@
-The Black Death, one of the deadliest pandemics in human history, peaked in Europe between 1347 and 1351.
+The Industrial Revolution began in Britain in the late 18th century, transforming economies and societies worldwide.
